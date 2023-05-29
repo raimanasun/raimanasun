@@ -6,7 +6,7 @@
 
 
   - 🌱 I’m currently learning everything 🤣
-  - 🥅 2022 Goals: Get a Job that I want and that I love
+  - 🥅 2023 Goals: Get a Job that I want and that I love
   - ⚡ Fun fact: I love to draw and play guitar / piano
 
   ### Connect with me:
