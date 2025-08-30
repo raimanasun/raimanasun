@@ -2,9 +2,6 @@
   ---
   </br>
 
-  ## I'm a Husband and Father!!
-
-
   - 🌱 I’m currently learning everything 🤣
   - 🥅 2025 Goals: Get a Job that I want and that I love
   - ⚡ Fun fact: I love to draw and play guitar / piano
